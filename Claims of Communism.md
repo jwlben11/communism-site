@@ -1,0 +1,15 @@
+ - History of man is a clash of the interests of different social classes
+- In capitalism, the capitalists are exploiting the workers by doing stealing the surplus value created by them
+- Exploitation happens when the capitalist sells the product for a price more than what he paid the employee.
+- The workers are struggling in the capitalist system, and communism is the solution to that. 
+- All wars are economic wars
+- The value of an item should be calculated by them the labor time that went into it
+- Capitalism creates inequality
+- Capitalism creates exploitation
+- Workers owning the means of production will
+	- Increase quality of life
+	- Remove exploitation
+- You have the values you have because you were brought up in a capitalist system. You values will change once a socialist system is set in place.
+- We depend on people for satisfying our needs. Therefore we are socialist by nature. 
+- There has never been a communist society yet
+- 

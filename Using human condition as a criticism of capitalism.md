@@ -1,0 +1,1 @@
+Just ask them if the same problem happens in socialist and communist states
